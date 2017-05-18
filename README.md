@@ -20,3 +20,11 @@ it does not
 it does
 does not
 
+Nasci em 1983, junto com a internet
+quando a primeira ligacao de celular foi feita
+quando michael jackson estreiou o moonwalk
+
+com 4,200 g 
+primogenito de Fatima
+filho de Rubens
+
